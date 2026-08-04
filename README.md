@@ -17,10 +17,14 @@ Currently a WIP !
 ---
 <!--TITLE TILTULD-->
 <div align="center">
-<span style="color: red;">Vex or Bon . italian french </span>
+<span style="color: red;">Vex or Bon . italian </span>
 <!--TITLE TILTULD-->
 <div align="center">
 <span style="color: red;">Agender - Transmasc . Aroace</span>
 <div align="center">
   <img src="https://64.media.tumblr.com/10edb0c41d28d572762e0580ae3b3537/aed10ba3a76251e0-14/s1280x1920/f90e9f9dd99856603e4b6c87f8d59f5b77205331.pnj">
 </div>
+___
+  <!--TITLE TILTULD-->
+<div align="center">
+<span style="color: red;">Originally from Italy,i speak Italian , english and french , could say others too dince i am multilangual but not as much as the main languages.</span>
