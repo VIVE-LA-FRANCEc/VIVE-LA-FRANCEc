@@ -17,7 +17,7 @@ Currently a WIP !
 ---
 <!--TITLE TILTULD-->
 <div align="center">
-<span style="color: red;">Vex or Bon .</span>
+<span style="color: red;">Vex or Bon . italian french </span>
 <!--TITLE TILTULD-->
 <div align="center">
 <span style="color: red;">Agender - Transmasc . Aroace</span>
