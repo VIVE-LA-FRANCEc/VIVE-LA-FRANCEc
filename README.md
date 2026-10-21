@@ -1,30 +1,14 @@
 <!--FIR-->
 <div align="center">
-Currently a WIP !
-<!-- BANNER -->
-<div align="center">
-  <img src="https://64.media.tumblr.com/042229c9d88e6a55ce808a78faeb6c3e/616fc3fe70348e4c-f6/s540x810/692b13b4f88433228105aa8d3256f931b7be3322.pnj">
-</div>
-<!-- Divider -->
-<div align="center">
-  <img src="https://64.media.tumblr.com/67d4007130ced440d969748f6adff816/616fc3fe70348e4c-01/s540x810/85692be9725320a9f6ec8d7949d5383f7244c427.pnj">
-</div>
-
-<!--TITLE TILTULD-->
-<div align="center">
-" i did not usurp the crown.I found it,in the gutter,and I,I picked it with with my own sword. "
   
----
-<!--TITLE TILTULD-->
-<div align="center">
-<span style="color: red;">Vex or Bon . italian </span>
-<!--TITLE TILTULD-->
-<div align="center">
-<span style="color: red;">Agender - Transmasc . Aroace</span>
-<div align="center">
-  <img src="https://64.media.tumblr.com/10edb0c41d28d572762e0580ae3b3537/aed10ba3a76251e0-14/s1280x1920/f90e9f9dd99856603e4b6c87f8d59f5b77205331.pnj">
-</div>
-___
-  <!--TITLE TILTULD-->
-<div align="center">
-<span style="color: red;">Originally from Italy,i speak Italian , english and french , could say others too dince i am multilangual but not as much as the main languages.</span>
+<img src="https://64.media.tumblr.com/07164a8d1dba10f12828366028239625/e8970991b3d983c9-f6/s1280x1920/36bae26a77904cdb60ad77bb643420140ac420d7.gifv" width="80%">
+
+italia , please do be patient with me i cant speak english well and used translate most of the time, thank you. I am a Yumeshipper of Alois Blemich ( friend's OC ) .
+
+<img src="https://64.media.tumblr.com/1cdf90880b122438619437dcaafa2c27/2ef905029557de3d-c4/s400x600/9cca8af5897b5b25d9466c1a1eaaa8b8865b8a2c.pnj" width="60%">
+
+please do interact with me if you are over the age of 18 and knows Napoleonic war!
+
+<img src="https://64.media.tumblr.com/d4c780f3a62f885848cb6c8a849ae871/3c3417d71bd36918-1a/s1280x1920/2dfbae703541ac3b346b81a553d076fd04b59119.jpg" width="40%">
+
+Heavily Mentioned ♡, @RuleBr1tannia my bestfriend of 7 years! 
